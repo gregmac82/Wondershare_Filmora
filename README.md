@@ -1,2 +1,2 @@
 # Wondershare_Filmora
-WonderShare Filmora 10.1.7.2
+WonderShare Filmora 11.1
